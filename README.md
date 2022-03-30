@@ -1,2 +1,0 @@
-# itsook.github.io
-ok
